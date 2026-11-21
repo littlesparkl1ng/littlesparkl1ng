@@ -1,16 +1,13 @@
-## Hi there 👋
+<div align="center"><br/>
+  
+<br>
+  
+$\color{#646464}{\textsf{hi}}$<br>
+$\color{#646464}{\textsf{do not interact with me, if: you are under 16, one of my ex-friends,}}$<br>
+$\color{#646464}{\textsf{friend groups that i don't know}}$<br>
 
-<!--
-**littlesparkl1ng/littlesparkl1ng** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+$\color{#646464}{\textsf{thank you, have a nice day}}$<br>
 
-Here are some ideas to get you started:
+<div align="center"><br/>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+$\color{#646464}{\textsf{( also known as maggy, sparklesmakers, littlesparkl1ngstar, 1ng, 2ng )}}$<br>
