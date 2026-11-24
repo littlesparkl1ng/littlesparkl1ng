@@ -10,4 +10,4 @@ $\color{#bca168}{\textsf{thank you, have a nice day}}$<br>
 
 <div align="center"><br/>
 
-$\color{#bca168}{\textsf{( also known as maggy, sparklesmakers, littlesparkl1ngstar, littlesparkl2ngstar 1ng, 2ng )}}$<br>
+$\color{#bca168}{\textsf{( also known as astariomaggelen, maggy, sparklesmakers, littlesparkl1ngstar, littlesparkl2ngstar 1ng, 2ng )}}$<br>
